@@ -11,6 +11,7 @@ Let me introduce myself!
 
 -------------------------------------------------------------
 **📢 CURRENTLY LOOKING FOR AN EXCITING PROJECT WHERE I CAN UNLEASH MY FULL POTENTIAL 📢**
+
 You can always find me here:
 
 - Mail: angela.abad2000@gmail.com
