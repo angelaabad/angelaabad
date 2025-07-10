@@ -9,12 +9,13 @@ Let me introduce myself!
 
 - I am a **curious mind** with a **responsible**, **proactive** and **highly organized** mindset. My **strong ambition to learn**, **support the scientific community** and expand my **expertise** is what pushes me to find new thrilling projects!
 
-Hope you enjoy my profile!
+
+**📢 CURRENTLY LOOKING FOR AN EXCITING PROJECT WHERE I CAN UNLEASH MY FULL POTENTIAL 📢**
 You can always find me here:
 
 - Mail: angela.abad2000@gmail.com
 - Contact: +34 625 54 04 61
-
-Thank you for your interest! Have a nice day! 🔭😄
+  
+Hope you enjoy my profile, thank you for your interest! Have a nice day! 🔭😄
 
 
