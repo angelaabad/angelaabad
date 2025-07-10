@@ -10,7 +10,7 @@ Let me introduce myself!
 - I am a **curious mind** with a **responsible**, **proactive** and **highly organized** mindset. My **strong ambition to learn**, **support the scientific community** and expand my **expertise** is what pushes me to find new thrilling projects!
 
 -------------------------------------------------------------
-**📢 CURRENTLY LOOKING FOR AN EXCITING PROJECT WHERE I CAN UNLEASH MY FULL POTENTIAL 📢**
+**📢 CURRENTLY LOOKING FOR AN EXCITING PROJECT WHERE I CAN UNLEASH MY FULL POTENTIAL! 📢**
 
 You can always find me here:
 
